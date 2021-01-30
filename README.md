@@ -1,4 +1,4 @@
-# Dofucks
+# Dofucks DEPRECATED
 
 **Using this tool may get you banned from the game. I am not responsible for any account that gets banned. You should not use this tool on your main account. Please respect the game and the other players.**
 
